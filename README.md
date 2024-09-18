@@ -2,7 +2,7 @@
 - 👀 I’m interested in crypto trading 
 - 🌱 I’m currently learning technical analysis 
 - 💞️ I’m looking to collaborate on building trading bots 
-- 📫 How to reach me WhatsApp/Telegram:+2348063236290
+- 📫 How to reach me WhatsApp/Telegram: +2348063236290
 - 😄 Pronouns: He
 - ⚡ Fun fact: Loves crypto 
 
